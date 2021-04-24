@@ -15,8 +15,6 @@
 
 📧邮箱联系方式：taohsj2020@gmail.com（发送任意内容获取最新地址）
 
-电报频道，欢迎关注！HttpS://t.me/taohu_av 
-
 谨记永久发布页哦，吊的拼音+色的拼音哦，
 
 二师兄都记住了呢！Https://taohtv.com
